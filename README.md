@@ -3,7 +3,7 @@
 - 📝 Quando a escola é presente, o futuro é certo.
 - 📚 O Provecto acredita que para chegar ao futuro, basta ser presente. E ser presente é pensar e investir em todas as etapas do ensino, desde a qualidade do corpo docente até as estratégias inovadoras de aprendizagem.
 - 🎯 A nossa missão é contribuir na formação de valores a partir de um ensino de qualidade de forma sustentável para as futuras gerações. Nossos valores são presteza, ética, responsabilidade, disciplina, paixão, pessoas e resultados.
-- 💞️ 
+- 🌐 https://colegioprovecto.com.br
 - 📫 relacionamento@colegioprovecto.com.br
 
 <!---
